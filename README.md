@@ -1,4 +1,4 @@
-# BF2042 Hack: Aimbot & ESP & Tools * Unlock ALL
+# BF2042 Hack: Aimbot & ESP & Tools & Unlock ALL
 
 
 [<img src="https://img.shields.io/badge/Mediafire-Click_To_Download-orange?style=for-the-badge&logo=mediafire">](https://app.mediafire.com/t8zrgyorywwai?BF20421)
